@@ -1,4 +1,4 @@
-# 
+# Descript for macOS smart Script: color-correction & cloud-sync offers the most advanced Descript for macOS script, with color-correction and cloud-sync. Ideal for professional
 
 
 
